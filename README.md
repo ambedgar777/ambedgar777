@@ -2,7 +2,7 @@
 
 
 
-👀 I’m interested in Application Development.
+👀 I’m interested in Flutter Development.
 
 
 
