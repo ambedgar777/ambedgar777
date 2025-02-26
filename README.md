@@ -14,8 +14,5 @@
 
 
 
-📫 How to reach me: Check social links below.
+📫 How to reach me: Check the social links below.
 
-
-
-⚡ Fun fact: My favourite present is book and I love to eat sweet.
